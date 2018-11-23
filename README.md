@@ -1,2 +1,2 @@
 # uadminbot
-((((copyright - haha if you steal this, see you in court))))
+-- boi if you steal this bot, imma kill u
